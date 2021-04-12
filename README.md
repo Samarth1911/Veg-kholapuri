@@ -1,1 +1,1 @@
-# Veg-kholapuri
+# VegKholapuri
